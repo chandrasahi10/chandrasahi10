@@ -6,7 +6,7 @@ I'm a passionate and curious individual who thrives on the excitement of learnin
 
 💡 Interests:
 
-My interests span across various domains within the tech world, from software development to artificial intelligence and beyond. I find immense joy in exploring cutting-edge frameworks, diving into coding languages, and unraveling the mysteries of complex algorithms.
+My interests span across various domains within the tech world, from software development to artificial intelligence and beyond. I like coding and development, where I can bring ideas to life through technology. In my leisure time, I find joy in photography, capturing moments that inspire me, indulging in reading to expand my horizons, and expressing myself through the vibrant strokes of painting.
 
 🌱 Learning Enthusiast:
 
